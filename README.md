@@ -1,3 +1,2 @@
 <p align="center">
-profile wip. thanky!!! check my pronouns.cc
-<img src=https://github.com/slingcake/slingcake/blob/28cafe3c76ba1fcb0a71e558014ffe313ffb6388/IMG_9140.GIF width="500">
+<img src=https://github.com/slingcake/slingcake/blob/485665b0c0b69d2d94a13fee47bd4cc35664f26f/Untitled2557_20261002223658.PNG width="500">
