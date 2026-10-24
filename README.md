@@ -9,5 +9,5 @@ mᥱ ᑲ𝗍ᥕ (˶ᵔ ᵕ ᵔ˶)
 <br>
 n1 coilshot shipper and fan (im a multishipper though Dont fret..)
 <br>
-art creds: @.doozo on tiktok
+follow my main.... shhh
 </details>
